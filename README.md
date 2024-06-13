@@ -1,1 +1,0 @@
-# Thamoddya.github.io
